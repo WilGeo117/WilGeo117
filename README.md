@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @WilGeo117
-- 👀 I’m interested in women
-- 🌱 I’m currently learning the worm
-- 💞️ I’m looking to collaborate on fortnite festival
-- 📫 How to reach me I am lost
-- 😄 Pronouns: he but i will never be him
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
+- 😄 Pronouns: 
 - ⚡ Fun fact: Im cooked
 
 <!---
